@@ -10,5 +10,3 @@ Eduard
 11:14
 
 Kirill Moiseev
-
-11:33 BalkanovBogdan здесь был)
